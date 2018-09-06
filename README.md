@@ -1,3 +1,6 @@
+# Condos
+destin fl century park west
+
 # Destin
 Activities
 - Tubing on Turkey creek (on hot days)
