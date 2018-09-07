@@ -1,6 +1,9 @@
 # Condos
 destin fl century park west
 
+# Dining
+Joe & Eddies in Ft Walton
+
 # Destin
 Activities
 - Tubing on Turkey creek (on hot days)
