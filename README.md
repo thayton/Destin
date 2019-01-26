@@ -6,6 +6,7 @@ Joe & Eddies in Ft Walton
 
 # Destin
 Activities
+- Old Poquito Bayou rope swing
 - Tubing on Turkey creek (on hot days)
 - Skin diving under Shalimar bridge.
 - Goofy Golf!
