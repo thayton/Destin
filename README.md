@@ -2,7 +2,8 @@
 destin fl century park west
 
 # Dining
-Joe & Eddies in Ft Walton
+- Joe & Eddies in Ft Walton
+- Mullet at Stewby’s
 
 # Destin
 Activities
