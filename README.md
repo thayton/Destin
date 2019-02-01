@@ -7,6 +7,7 @@ destin fl century park west
 
 # Destin
 Activities
+- Southern Raceway in Milton (https://southernraceway.com/)
 - Old Poquito Bayou rope swing
 - Tubing on Turkey creek (on hot days)
 - Skin diving under Shalimar bridge.
