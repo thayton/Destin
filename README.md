@@ -14,3 +14,4 @@ Activities
 - Goofy Golf!
 - Kids get to fish for FREE off the docks at AJ's Seafood & Oyster Bar from 4-7 every day! They provide the pole, the bait, and the help!
 - Big Kahuna’s
+- Crab Island Sandbar Adventure
