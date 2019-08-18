@@ -1,9 +1,18 @@
+# Baker
+- Saturday morning farmer's market
+
+# Fishing
+- [Eglin fishing permit](https://eglin.isportsman.net/Beaches.aspx)
+- Okaloosa Island Pier
+- Surf fishing
+
 # Condos
 destin fl century park west
 
 # Dining
 - Joe & Eddies in Ft Walton
 - Mullet at Stewby’s
+- Gator Cafe in Baker
 
 # Destin
 Activities
