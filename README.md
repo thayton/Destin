@@ -5,6 +5,8 @@
 - [Eglin fishing permit](https://eglin.isportsman.net/Beaches.aspx)
 - Okaloosa Island Pier
 - Surf fishing
+- Kohler Bayou
+- [Rocky Bayou](https://www.floridastateparks.org/parks-and-trails/fred-gannon-rocky-bayou-state-park)
 
 # Condos
 destin fl century park west
