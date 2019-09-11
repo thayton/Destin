@@ -16,8 +16,10 @@ destin fl century park west
 - Mullet at Stewby’s
 - Gator Cafe in Baker
 
-# Destin
-Activities
+# Activities
+- Holmes Creek
+- Wakula Springs
+- Econfina Springs
 - Southern Raceway in Milton (https://southernraceway.com/)
 - Old Poquito Bayou rope swing
 - Tubing on Turkey creek (on hot days)
