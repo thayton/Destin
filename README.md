@@ -7,6 +7,7 @@
 - Surf fishing
 - Kohler Bayou
 - [Rocky Bayou](https://www.floridastateparks.org/parks-and-trails/fred-gannon-rocky-bayou-state-park)
+- [Frog Gigging](https://panhandlechartersandguideservice.com/pensacola-fishing-charters/pensacola-fishing-charters.html)
 
 # Condos
 destin fl century park west
