@@ -18,6 +18,8 @@ destin fl century park west
 - Gator Cafe in Baker
 
 # Activities
+- https://www.facebook.com/turkeycreekpark kayaking
+- https://www.cityofniceville.org/271/Turkey-Creek-Nature-Trail
 - Hippie Hole on Turkey Creek north of 123 and west of 85
 - [Ponce de Leon springs](https://www.tripadvisor.com/Attraction_Review-g34572-d2225554-Reviews-Ponce_de_Leon_Springs_State_Park-Ponce_de_Leon_Florida.html)
 - Holmes Creek
